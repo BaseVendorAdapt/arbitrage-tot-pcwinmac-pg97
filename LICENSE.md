@@ -1,4 +1,4 @@
-# 
+# مفتوح المصدر arbitrage trading bot سكريبتات لـ Mac OS | آمن arbitrage trading bot سكريبتات لـ PC Windows. مع إشعارات التنبيه و التحكم في الانزلاق — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
